@@ -1,6 +1,4 @@
-DLMFLDSM,L,LS# testo nuovo file
-fsmmfopdmflmdlpsùf
-vdsvldmlmvdlsa
+svldmlmvdlsa
 fdsmfklmdksmvkmc
 fdsmFKDMLKFKDMàVD
 <VDKSFLOMKDSàFL<MDS
